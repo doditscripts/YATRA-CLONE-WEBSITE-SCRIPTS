@@ -1,6 +1,16 @@
-# YATRA-CLONE-WEBSITE-SCRIPTS
-Yatra Clone script Yatra clone wish to be one or other way the same and if you want to start a site just as same as “Yatra.com”, then you have reached the right place. Our Yatra Clone Script has all the relevant features and benefits that could result in bringing a hike to your business &amp;hellip
-ADMIN PANEL
-SUPER ADMIN PANEL
-WALLET USER PANEL
-GUEST USER PANEL
+YATRA CLONE | WEBSITE SCRIPTS
+Our Yatra clone platform already has normal options developed that permits you to kick starter your project quickly with quality. The advantage of operating with U.S. is that the incontrovertible fact that we tend to've already got the bottom prepared for you! the web site clone design that we use in making with-it clone scripts just like Yatra is very ascendable, robust, easy and might simply be bespoken as per your project necessities.Yatra Clone script Yatra clone want to be one or different approach a similar and if you would like to begin a website even as same as “Yatra.com”, then you have got reached the proper place. Our Yatra Clone Script has all the relevant options and edges that would end in transportation a hike to your business &help
+System
+CRS Management
+API Management
+Markup Management
+Commission Management
+SMS Management
+Email Management
+Payment Gateway
+Reports Management
+Profile Management
+Post Notice & Offers
+Advertising
+SEO
+Currency
